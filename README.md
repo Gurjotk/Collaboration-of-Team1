@@ -17,3 +17,16 @@ Meaning |code snippet
 ![Manpreet Singh](https://us.123rf.com/450wm/dedmazay/dedmazay1403/dedmazay140300002/27439758-stock-vector-dreaming-young-pilot-on-a-white-background-vector-illustration.jpg)
 ![Gurjot Kaur](https://www.irishexaminer.com/remote/www.irishexaminer.com/remote/ie-web.alfa-cloud.net/portalsuite/image/f110e11d-856f-437c-911c-17a78cec71b8/mainMediaSize=600x325_type=image_publish=true__image.jpg?width=648&s=ie-870158)
 ![Dalwinder Singh](https://i2-prod.mirror.co.uk/incoming/article12019217.ece/ALTERNATES/s615/This-class-is-a-snoozefest.jpg)
+#### Meaning
+``` Arshdeep 
+self decision taker
+```
+```Manpreet
+I don't need anything
+```
+```Gurjot
+For me life is not easy as it seems
+```
+```Dalwinder
+Everything is in my words that i have in my heart
+```
